@@ -1,2 +1,1 @@
-# YUMESHIP
-SHSJAFSISGIWHWVHSJSUVSHSKSB
+![](https://files.catbox.moe/y1k1y3.png)
