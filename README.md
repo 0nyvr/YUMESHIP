@@ -10,6 +10,5 @@ DOUBLES KINDLY AND RESPECTFULLY DNI
 
 ![](https://files.catbox.moe/hbv0mz.jpg)
 
-^^^ can't forget my vewy vewy vewy vewy vewy vewy big baby boy :33
-mwwaaa
+^^^ can't forget my infinite vewy big baby boy :33 givs him infinite fav million kisses and infinite big hugs >3<
 
