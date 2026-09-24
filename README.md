@@ -4,7 +4,7 @@
 
 I LUV MY BABY BOYS SM <33
 
-DOUBLES KINDLY AND RESPECTFULLY DNI
+doubles kindly and respectfully dni
 
 <div align="center">
 
