@@ -8,7 +8,7 @@ doubles kindly and respectfully dni
 
 <div align="center">
 
-![](https://files.catbox.moe/fyhrt4.jpg)
+![](https://litter.catbox.moe/aubbkncc69vh1co1.jpg)
 
 <div align="center">
 
